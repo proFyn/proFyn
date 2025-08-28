@@ -1,6 +1,6 @@
 ## Hi there 🙋
 
-#### It's me islam (proFyn)
+#### It's me islam 
 
 - 🧑‍💻 Computer, Math, Philosophy, and ... Enthusiast
 - 😄 Maybe I’m currently learning something
