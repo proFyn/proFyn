@@ -4,4 +4,4 @@
 
 - 🧑‍💻 Computer, Math, Philosophy, and ... Enthusiast
 - 😄 Maybe I’m currently learning something
-- 📫 You can find me here: [Telegram](https://t.me/GH5140) ,[Reddit](https://www.reddit.com/user/pro_Fyn/)
+- 📫 You can find me here: [X](https://x.com/IslamOp98053) 
